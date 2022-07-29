@@ -1,6 +1,5 @@
-I’m @CoonCluxClan
+I’m @JustSkillNoBan
 
-this is a github for my skidded client - Zesty (Promoted by : JustSkillNoBan)
-im best vulcan dev :trust:
+this is my dev account for the client known as Fatality.wtf
 
 have fun on my empty profile
